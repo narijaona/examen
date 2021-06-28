@@ -1,0 +1,4 @@
+![image](https://user-images.githubusercontent.com/86242048/123664907-c8c93e00-d805-11eb-9b3e-c1a9cffce724.jpeg)
+
+Pee-Wee Big Adventure (Pee-Wee's Big Adventure) est un film américain, le premier long métrage réalisé par Tim Burton et sorti en 1985. Le film conte l'histoire de Pee-Wee Herman à la recherche dans tout le pays de sa bicyclette volée.
+Le succès de The Pee-wee Herman Show a incité la Warner Bros. à commander un scénario à Paul Reubens pour un film avec Pee-wee Herman comme héros. L'idée originale de Reubens fut de faire une reprise de Pollyanna (1960) avec Pee-Wee Herman dans le rôle de Hayley Mills. Burton a été embauché comme réalisateur une fois que Reubens et les producteurs ont vu son travail sur Vincent et Frankenweenie. Pee-Wee Big Adventure fut un succès financier et critique et est devenu un film culte.
